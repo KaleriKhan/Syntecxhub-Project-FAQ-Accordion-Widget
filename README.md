@@ -1,0 +1,1 @@
+# Syntecxhub-Project-FAQ-Accordion-Widget
